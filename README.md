@@ -1,5 +1,4 @@
-![kisspng-computer-icons-symbol-clip-art-staff-5acba99a330b51 5371824315232966662091](https://user-images.githubusercontent.com/39734559/92646123-9183b200-f303-11ea-82b6-bd0fdb2b919d.png)
-
+<img src="https://i.gifer.com/8vKB.gif" width="300">
 ### Hi there I'm Smriti👋
 
 <!--
